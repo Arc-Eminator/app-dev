@@ -44,11 +44,11 @@ Welcome to my curated list of favorite manhwa-style series that blend mystery, f
 
 ## Honorable Mentions
 
-- *Trash of the Count’s Family*
+# H1 *Trash of the Count’s Family*
 - ![visual representation](https://manhwatop.com/wp-content/uploads/2020/09/Trash-of-the-Count%E2%80%99s-Family-1.jpg)
-- *The World After the Fall*
+# H1 *The World After the Fall*
 - ![visual representation](https://m.media-amazon.com/images/I/812bhy7v7sL._SL1500_.jpg)
-- *SSS-Class Suicide Hunter*
+# H1 *SSS-Class Suicide Hunter*
 - ![visual representation](https://cdn.novelupdates.com/images/2021/05/SSSClass-Suicide-Hunter.jpg)
 
 ---
