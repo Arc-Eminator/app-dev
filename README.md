@@ -20,7 +20,7 @@ Welcome to my curated list of favorite manhwa-style series that blend mystery, f
   - Unpredictable plot twists
   - A protagonist who ascends from ordinary to godlike
  
-![visual representaion](LOM.jpg)
+![visual representaion](<img width="600" height="972" alt="image" src="https://github.com/user-attachments/assets/726a50b0-5314-4785-87c1-2578e03947f1" />)
 
 ---
 
@@ -38,18 +38,18 @@ Welcome to my curated list of favorite manhwa-style series that blend mystery, f
   - Emotional depth and character growth
   - Epic battles with strategic twists
  
-![visual representation](ORV.jpg)
+![visual representation](<img width="474" height="669" alt="image" src="https://github.com/user-attachments/assets/a8703795-5498-4c62-981a-cd091c473145" />)
 
 ---
 
 ## Honorable Mentions
 
 - *Trash of the Count’s Family*
-![visual representation](TCF.jpg)
+![visual representation](<img width="600" height="900" alt="image" src="https://github.com/user-attachments/assets/e998a4a0-8fd1-481b-a06d-721d8a0e0b83" />)
 - *The World After the Fall*
-![visual representation](TWAF.jpg)
+![visual representation](<img width="1045" height="1500" alt="image" src="https://github.com/user-attachments/assets/e2d38119-8558-4158-8c71-04d58c83ccac" />)
 - *SSS-Class Suicide Hunter*
-![visual representation](SSS.jpg)
+![visual representation](<img width="1152" height="1751" alt="image" src="https://github.com/user-attachments/assets/92e92bdb-6539-42b0-8d82-960f05610163" />)
 
 ---
 
