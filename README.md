@@ -19,6 +19,8 @@ Welcome to my curated list of favorite manhwa-style series that blend mystery, f
   - Deep lore and mythos
   - Unpredictable plot twists
   - A protagonist who ascends from ordinary to godlike
+ 
+![visual representaion](LOM.jpg)
 
 ---
 
@@ -35,14 +37,19 @@ Welcome to my curated list of favorite manhwa-style series that blend mystery, f
   - Clever use of narrative perspective
   - Emotional depth and character growth
   - Epic battles with strategic twists
+ 
+![visual representation](ORV.jpg)
 
 ---
 
 ## Honorable Mentions
 
 - *Trash of the Count’s Family*
+![visual representation](TCF.jpg)
 - *The World After the Fall*
+![visual representation](TWAF.jpg)
 - *SSS-Class Suicide Hunter*
+![visual representation](SSS.jpg)
 
 ---
 
