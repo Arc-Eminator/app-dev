@@ -20,7 +20,7 @@ Welcome to my curated list of favorite manhwa-style series that blend mystery, f
   - Unpredictable plot twists
   - A protagonist who ascends from ordinary to godlike
  
-![visual representaion](<img width="600" height="972" alt="image" src="https://github.com/user-attachments/assets/726a50b0-5314-4785-87c1-2578e03947f1" />)
+![visual representaion](https://n00.mbqgu.org/media/mbim/4fe/4fe253ba290e5f36f34cf7575f3a03c6c8371407_600_972_55954.webp)
 
 ---
 
@@ -38,18 +38,18 @@ Welcome to my curated list of favorite manhwa-style series that blend mystery, f
   - Emotional depth and character growth
   - Epic battles with strategic twists
  
-![visual representation](<img width="474" height="669" alt="image" src="https://github.com/user-attachments/assets/a8703795-5498-4c62-981a-cd091c473145" />)
+![visual representation](https://tse4.mm.bing.net/th/id/OIP.EAQZ-U66ToImBzrcg8ICnwHaKd?cb=12ucfimg=1&rs=1&pid=ImgDetMain&o=7&rm=3)
 
 ---
 
 ## Honorable Mentions
 
 - *Trash of the Count’s Family*
-![visual representation](<img width="600" height="900" alt="image" src="https://github.com/user-attachments/assets/e998a4a0-8fd1-481b-a06d-721d8a0e0b83" />)
+![visual representation](https://manhwatop.com/wp-content/uploads/2020/09/Trash-of-the-Count%E2%80%99s-Family-1.jpg)
 - *The World After the Fall*
-![visual representation](<img width="1045" height="1500" alt="image" src="https://github.com/user-attachments/assets/e2d38119-8558-4158-8c71-04d58c83ccac" />)
+![visual representation](https://m.media-amazon.com/images/I/812bhy7v7sL._SL1500_.jpg)
 - *SSS-Class Suicide Hunter*
-![visual representation](<img width="1152" height="1751" alt="image" src="https://github.com/user-attachments/assets/92e92bdb-6539-42b0-8d82-960f05610163" />)
+![visual representation](https://cdn.novelupdates.com/images/2021/05/SSSClass-Suicide-Hunter.jpg)
 
 ---
 
